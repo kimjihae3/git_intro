@@ -1,2 +1,3 @@
 Jihae Kim
 7
+BLACKPINK
